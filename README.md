@@ -1,0 +1,1 @@
+# resume_rus_ver
